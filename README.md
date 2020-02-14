@@ -1,1 +1,1 @@
-# Laila
+# Laila I spent 3 years of my experience as a programmer developing and building different firms of DataBase and ASP.Net Web applications on Banking systems and loan solutions for different customers using different technologies like Asp.Net, MSQL, Vb.net, and C#. That gave me a good experience in how to be work with other team members and to control the job under the pressure environment to complete the tasks and Handover the project to the customer on time. 
